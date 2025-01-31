@@ -1,0 +1,2 @@
+# kebumentrip
+di jamin terbang
